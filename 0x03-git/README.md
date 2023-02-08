@@ -1,0 +1,1 @@
+Once computers can effectively reprogram themselves, and successively improve themselves, leading to a so-called "technological singularity" or "intelligence explosion," the risks of machines outwitting humans in battles for resources and self-preservation cannot simply be dismissed.
